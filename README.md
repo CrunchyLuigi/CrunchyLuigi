@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @CrunchyLuigi
+- 👀 I’m interested in video games // Coding 
+- 🌱 I’m currently learning different Languages around the World. 
+- 💞️ I’m looking to collaborate on something i find interesting
+- 📫 How to reach me Discord: CrunchyLuigi#9996 Twitter: CrunchyLuigi
